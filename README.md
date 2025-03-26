@@ -9,11 +9,9 @@
 
 - 📝 Я пишу свои посты в: [https://t.me/tinygamesstudio](https://t.me/tinygamesstudio)
 
-- 💬 Можете спросить **о моих проектах**
+- 💬 Можете спросить **о чем угодно**
 
 - 📫 Как связаться со мной **tiny.soft.game@gmail.com**
-
-- ⚡ Забавный факт: **я идиот**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
